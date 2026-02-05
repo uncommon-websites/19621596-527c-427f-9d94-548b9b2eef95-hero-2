@@ -1,0 +1,2 @@
+# 19621596-527c-427f-9d94-548b9b2eef95-hero-2
+Hero section variant 2 for 19621596-527c-427f-9d94-548b9b2eef95
